@@ -1,1 +1,1 @@
-The next generation of software, powered by you
+Bringing the next generation of software and services. 
